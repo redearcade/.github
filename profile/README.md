@@ -1,2 +1,2 @@
 ## Rede Arcade
-⚔ Subsidiária Arcade Studios
+⚔ Subsidiária Arcade Studios ⚔
