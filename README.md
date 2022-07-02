@@ -1,1 +1,2 @@
-# .github
+# Rede Arcade
+Subsidiária Arcade Studios.
